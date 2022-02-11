@@ -102,7 +102,7 @@ The Association is liable for its obligations with its assets. Any personal liab
 
 Article 15 - Commercial Register
 
-As long as the association is not obliged to be registered in the commercial register, it is entitled to be registered in the commercial register.
+The Association may file for registry in the Commercial Register even if not required by law.
 
 Article 16 - Dissolution and liquidation
 
